@@ -1,4 +1,4 @@
-These terms and conditions outline the rules and regulations for the use of Fasting For Weight Loss ("Fasting").
+These terms and conditions outline the rules and regulations for the use of Intermittent Fasting Tracker ("Fasting").
 
 By accessing to the Service, we assume you accept these terms and conditions in full. You may not use Fasting if you do not accept all of the terms and conditions stated on this page.
 
